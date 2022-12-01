@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @omidziveh
+- Interested in Python 🐍
+- 👨‍🎓
+- ♥️ music and video games 🎶🎮
+- 📫 omidziveh@gmail.com
